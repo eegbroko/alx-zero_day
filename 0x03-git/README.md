@@ -1,1 +1,1 @@
-Started to code today, so cool
+Progress over perfection
